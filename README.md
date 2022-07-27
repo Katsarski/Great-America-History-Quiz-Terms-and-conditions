@@ -1,0 +1,1 @@
+# Great-America-Quiz-Terms-and-conditions
